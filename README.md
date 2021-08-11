@@ -1,0 +1,3 @@
+- 👋 Hi, I'm @pedro535 better known as Pedro Rodrigues and I'm 18 years old :)
+- 👀 I'm a Computer Science and engineering student at the Universidade de Aveiro!
+- 📫 If you want to talk you can send me an email to "pedrofrodrigues4@gmail.com".
